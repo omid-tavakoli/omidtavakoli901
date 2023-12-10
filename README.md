@@ -1,0 +1,5 @@
+- 👋 Hi, I’m omid
+- 👀 I’m interested in Programing
+- 🌱 I’m currently learning Front-end
+- 📫 How to reach me :
+- Telegram : @omidtavakoli_tk
